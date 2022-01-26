@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## This furniture store keeps emailing me, all I wanted was one night stand!
