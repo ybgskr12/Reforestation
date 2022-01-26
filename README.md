@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## I wouldn't buy anything with velcro. It's a total rip-off.
