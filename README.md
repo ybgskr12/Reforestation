@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
