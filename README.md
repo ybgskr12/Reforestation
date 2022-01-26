@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
