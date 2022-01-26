@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Why do choirs keep buckets handy? So they can carry their tune
