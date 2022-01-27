@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
