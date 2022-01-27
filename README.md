@@ -1,1 +1,2 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
