@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## I made a belt out of watches once... It was a waist of time.
