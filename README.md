@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Why do cows wear bells? Because their horns don't work.
