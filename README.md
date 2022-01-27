@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## How do robots eat guacamole? With computer chips.
