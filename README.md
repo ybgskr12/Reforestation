@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
