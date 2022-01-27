@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## How do you get a baby alien to sleep?  You rocket.
