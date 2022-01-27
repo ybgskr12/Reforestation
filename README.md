@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Shout out to my grandma, that's the only way she can hear.
