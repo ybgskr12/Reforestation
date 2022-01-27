@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
