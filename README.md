@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
