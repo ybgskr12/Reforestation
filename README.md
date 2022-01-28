@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
