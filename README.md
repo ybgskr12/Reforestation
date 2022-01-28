@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
