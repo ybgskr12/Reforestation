@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## I burned 2000 calories today, I left my food in the oven for too long.
