@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## There's not really any training for garbagemen. They just pick things up as they go.
