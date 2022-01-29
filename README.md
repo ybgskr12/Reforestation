@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
