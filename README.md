@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
