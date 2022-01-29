@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
