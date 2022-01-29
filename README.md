@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
