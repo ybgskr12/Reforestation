@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
