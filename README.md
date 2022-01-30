@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
