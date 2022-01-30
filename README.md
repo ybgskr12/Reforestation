@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
