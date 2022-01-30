@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## What is the hardest part about sky diving? The ground.
