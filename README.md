@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Why don't sharks eat clowns?  Because they taste funny.
