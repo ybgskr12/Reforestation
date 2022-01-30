@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## What did one plate say to the other plate? Dinner is on me!
