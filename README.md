@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
