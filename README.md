@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Shout out to my grandma, that's the only way she can hear.
