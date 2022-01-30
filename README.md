@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
