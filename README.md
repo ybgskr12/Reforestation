@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
