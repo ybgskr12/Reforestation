@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I'll tell you what often gets over looked... garden fences.
