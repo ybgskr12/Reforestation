@@ -1,1 +1,2 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
