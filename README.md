@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What do you call a boy who stopped digging holes? Douglas.
