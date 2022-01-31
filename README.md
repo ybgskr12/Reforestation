@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why did the kid throw the clock out the window? He wanted to see time fly!
