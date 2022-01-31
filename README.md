@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
