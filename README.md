@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## If two vegans are having an argument, is it still considered beef?
