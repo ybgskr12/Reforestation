@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
