@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
