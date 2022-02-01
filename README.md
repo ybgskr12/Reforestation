@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What's the best thing about elevator jokes? They work on so many levels.
