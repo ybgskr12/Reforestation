@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Why are fish easy to weigh? Because they have their own scales.
