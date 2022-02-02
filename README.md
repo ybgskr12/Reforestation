@@ -1,1 +1,1 @@
-## I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
