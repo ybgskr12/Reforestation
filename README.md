@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
