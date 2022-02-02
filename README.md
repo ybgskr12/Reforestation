@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
