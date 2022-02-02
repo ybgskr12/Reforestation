@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
