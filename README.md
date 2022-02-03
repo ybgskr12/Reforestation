@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
