@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
