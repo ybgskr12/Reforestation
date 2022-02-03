@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## How does a French skeleton say hello? Bone-jour.
