@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
