@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## How many bones are in the human hand? A handful of them.
