@@ -1,1 +1,2 @@
-## "I'll call you later." Don't call me later, call me Dad.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
