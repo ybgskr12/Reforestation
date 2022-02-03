@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
