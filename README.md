@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
