@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## What time did the man go to the dentist? Tooth hurt-y.
