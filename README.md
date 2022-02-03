@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
