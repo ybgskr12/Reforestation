@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## What did the mountain climber name his son? Cliff.
