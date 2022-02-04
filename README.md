@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
