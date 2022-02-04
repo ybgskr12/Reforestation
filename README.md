@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Where does Napoleon keep his armies? In his sleevies.
