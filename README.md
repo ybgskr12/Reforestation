@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
