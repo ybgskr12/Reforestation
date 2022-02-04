@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
