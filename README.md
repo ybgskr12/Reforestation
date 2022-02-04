@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
