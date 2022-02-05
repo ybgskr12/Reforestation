@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
