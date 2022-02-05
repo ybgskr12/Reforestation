@@ -1,1 +1,2 @@
-## What has ears but cannot hear? A field of corn.
+## Where do cats write notes?
+## Scratch Paper!
