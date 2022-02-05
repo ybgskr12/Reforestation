@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Some people eat light bulbs. They say it's a nice light snack.
