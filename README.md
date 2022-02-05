@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
