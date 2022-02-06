@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
