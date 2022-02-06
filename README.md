@@ -1,1 +1,2 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## What is red and smells like blue paint?
+## Red paint!
