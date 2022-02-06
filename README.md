@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
