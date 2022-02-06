@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
