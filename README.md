@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Two peanuts were walking down the street. One was a salted.
