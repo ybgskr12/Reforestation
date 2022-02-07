@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
