@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
