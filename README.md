@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
