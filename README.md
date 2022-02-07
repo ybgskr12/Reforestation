@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
