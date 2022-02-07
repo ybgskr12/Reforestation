@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Conjunctivitis.com – now that’s a site for sore eyes.
