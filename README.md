@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
