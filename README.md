@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
