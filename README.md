@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## I decided to sell my Hoover… well it was just collecting dust.
