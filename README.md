@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
