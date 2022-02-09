@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## What musical instrument is found in the bathroom? A tuba toothpaste.
