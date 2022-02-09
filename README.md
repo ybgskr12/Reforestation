@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
