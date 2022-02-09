@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
