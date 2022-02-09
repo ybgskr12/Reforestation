@@ -1,1 +1,2 @@
-## Why was the broom late for the meeting? He overswept.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
