@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
