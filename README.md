@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
