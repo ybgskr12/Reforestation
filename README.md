@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## I used to be addicted to the hokey pokey, but I turned myself around.
