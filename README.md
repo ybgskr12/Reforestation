@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Why is no one friends with Dracula? Because he's a pain in the neck.
