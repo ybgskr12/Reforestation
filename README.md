@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
