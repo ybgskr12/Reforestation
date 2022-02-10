@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
