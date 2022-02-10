@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
