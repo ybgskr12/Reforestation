@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
