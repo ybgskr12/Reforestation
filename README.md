@@ -1,1 +1,3 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
