@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## Mountains aren't just funny, they are hill areas
