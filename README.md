@@ -1,1 +1,1 @@
-## What is this movie about? It is about 2 hours long.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
