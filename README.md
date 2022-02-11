@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What is this movie about? It is about 2 hours long.
