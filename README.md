@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## What do you call your friend who stands in a hole? Phil.
