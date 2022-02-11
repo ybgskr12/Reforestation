@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
