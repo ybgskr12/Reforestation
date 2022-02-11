@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
