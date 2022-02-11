@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
