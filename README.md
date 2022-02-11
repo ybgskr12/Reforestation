@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
