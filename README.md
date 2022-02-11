@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
