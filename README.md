@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
