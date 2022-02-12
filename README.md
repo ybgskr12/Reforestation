@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
