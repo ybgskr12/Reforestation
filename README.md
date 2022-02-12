@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## An apple a day keeps the bullies away. If you throw it hard enough.
