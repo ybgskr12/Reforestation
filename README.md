@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
