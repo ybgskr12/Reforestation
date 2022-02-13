@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
