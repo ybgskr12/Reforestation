@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## What musical instrument is found in the bathroom? A tuba toothpaste.
