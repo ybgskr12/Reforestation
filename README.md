@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
