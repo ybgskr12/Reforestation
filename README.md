@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
