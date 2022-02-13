@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## How do locomotives know where they're going? Lots of training
