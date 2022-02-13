@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
