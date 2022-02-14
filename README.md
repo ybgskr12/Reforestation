@@ -1,1 +1,2 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
