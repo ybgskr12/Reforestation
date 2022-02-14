@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
