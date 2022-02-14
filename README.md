@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
