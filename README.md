@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
