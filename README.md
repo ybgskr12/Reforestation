@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Why are pirates called pirates? Because they arrr!
