@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## A cannibal is someone who is fed up with people.
