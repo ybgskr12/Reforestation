@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## What did one nut say as he chased another nut?  I'm a cashew!
