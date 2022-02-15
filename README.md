@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## There's not really any training for garbagemen. They just pick things up as they go.
