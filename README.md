@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## A steak pun is a rare medium well done.
