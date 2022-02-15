@@ -1,1 +1,2 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## What do you do when you see a space man?
+## Park your car, man.
