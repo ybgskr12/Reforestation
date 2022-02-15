@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Whoever invented the knock-knock joke should get a no bell prize.
