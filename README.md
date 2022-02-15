@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
