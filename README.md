@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
