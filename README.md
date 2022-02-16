@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
