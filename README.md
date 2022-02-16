@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
