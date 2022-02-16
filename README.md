@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
