@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
