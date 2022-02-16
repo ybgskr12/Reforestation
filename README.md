@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
