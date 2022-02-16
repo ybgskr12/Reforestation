@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
