@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
