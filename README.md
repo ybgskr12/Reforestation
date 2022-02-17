@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## Two guys walked into a bar, the third one ducked.
