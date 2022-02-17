@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why did the barber win the race? He took a short cut.
