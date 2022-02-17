@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I made a belt out of watches once... It was a waist of time.
