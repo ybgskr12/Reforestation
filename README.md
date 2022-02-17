@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## I used to work in a shoe recycling shop. It was sole destroying.
