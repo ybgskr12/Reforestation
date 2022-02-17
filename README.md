@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
