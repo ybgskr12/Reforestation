@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## What is a vampire's favorite fruit? A blood orange.
