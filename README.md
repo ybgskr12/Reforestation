@@ -1,1 +1,1 @@
-## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
+## I’ll tell you something about German sausages, they’re the wurst
