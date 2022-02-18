@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Thanks for explaining the word "many" to me. It means a lot.
