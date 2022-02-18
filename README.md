@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Why do mathematicians hate the U.S.? Because it's indivisible.
