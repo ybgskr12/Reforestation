@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## It doesn't matter how much you push the envelope. It will still be stationary.
