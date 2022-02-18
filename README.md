@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## I had a dream that I was a muffler last night. I woke up exhausted!
