@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## A steak pun is a rare medium well done.
