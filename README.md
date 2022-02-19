@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## What did the shy pebble wish for? That she was a little boulder.
