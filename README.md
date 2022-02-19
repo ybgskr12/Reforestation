@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
