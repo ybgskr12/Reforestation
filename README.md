@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## What did one plate say to the other plate? Dinner is on me!
