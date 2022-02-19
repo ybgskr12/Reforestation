@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
