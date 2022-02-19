@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
