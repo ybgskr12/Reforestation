@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
