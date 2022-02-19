@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
