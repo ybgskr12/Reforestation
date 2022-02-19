@@ -1,1 +1,1 @@
-## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
