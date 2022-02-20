@@ -1,1 +1,3 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
