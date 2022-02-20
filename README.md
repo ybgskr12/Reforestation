@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
