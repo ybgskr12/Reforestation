@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
