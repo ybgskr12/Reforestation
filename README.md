@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
