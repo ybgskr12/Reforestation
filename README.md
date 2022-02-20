@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
