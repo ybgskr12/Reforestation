@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
