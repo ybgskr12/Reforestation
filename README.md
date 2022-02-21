@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
