@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why are pirates called pirates? Because they arrr!
