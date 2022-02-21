@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## How come the stadium got hot after the game? Because all of the fans left.
