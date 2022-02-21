@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
