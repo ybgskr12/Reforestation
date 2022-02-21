@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
