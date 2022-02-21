@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
