@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I tried to write a chemistry joke, but could never get a reaction.
