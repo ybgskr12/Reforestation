@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
