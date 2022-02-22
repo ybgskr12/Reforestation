@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
