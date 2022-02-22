@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why didn’t the skeleton cross the road? Because he had no guts.
