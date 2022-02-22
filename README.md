@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## A termite walks into a bar and asks “Is the bar tender here?”
