@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
