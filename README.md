@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Our wedding was so beautiful, even the cake was in tiers.
