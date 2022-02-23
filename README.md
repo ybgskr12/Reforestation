@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## What did the left eye say to the right eye? Between us, something smells!
