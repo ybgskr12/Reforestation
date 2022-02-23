@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## What is a witch's favorite subject in school? Spelling!
