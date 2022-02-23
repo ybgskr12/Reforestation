@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## How do you get two whales in a car? Start in England and drive West.
