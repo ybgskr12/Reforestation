@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What did the digital clock say to the grandfather clock? Look, no hands!
