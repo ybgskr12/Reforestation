@@ -1,1 +1,2 @@
-## What is a witch's favorite subject in school? Spelling!
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
