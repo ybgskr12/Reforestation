@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## When is a door not a door? When it's ajar.
