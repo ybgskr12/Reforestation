@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## "What time is it?" I don't know... it keeps changing.
