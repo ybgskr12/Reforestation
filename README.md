@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
