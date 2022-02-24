@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
