@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
