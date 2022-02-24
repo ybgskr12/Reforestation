@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
