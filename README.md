@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Where do sheep go to get their hair cut? The baa-baa shop.
