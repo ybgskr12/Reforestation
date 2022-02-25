@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
