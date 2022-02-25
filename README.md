@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
