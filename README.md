@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
