@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
