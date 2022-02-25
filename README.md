@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
