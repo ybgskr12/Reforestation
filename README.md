@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
