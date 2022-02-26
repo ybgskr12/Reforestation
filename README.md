@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
