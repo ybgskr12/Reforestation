@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
