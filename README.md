@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## What is a vampire's favorite fruit? A blood orange.
