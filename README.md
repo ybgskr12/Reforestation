@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
