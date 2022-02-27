@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
