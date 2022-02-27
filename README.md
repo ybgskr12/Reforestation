@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
