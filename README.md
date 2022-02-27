@@ -1,1 +1,2 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
