@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Where do rabbits go after they get married? On a bunny-moon.
