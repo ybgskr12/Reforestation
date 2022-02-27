@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
