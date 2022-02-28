@@ -1,1 +1,2 @@
-## What do you call a fat psychic? A four-chin teller.
+## Where do cats write notes?
+## Scratch Paper!
