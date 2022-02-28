@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## I’ll tell you something about German sausages, they’re the wurst
