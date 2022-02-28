@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## What is a vampire's favorite fruit? A blood orange.
