@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
