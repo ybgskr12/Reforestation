@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Why was the broom late for the meeting? He overswept.
