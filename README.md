@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
