@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## How come a man driving a train got struck by lightning? He was a good conductor.
