@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
