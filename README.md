@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
