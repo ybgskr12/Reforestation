@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
