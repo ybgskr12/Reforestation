@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
