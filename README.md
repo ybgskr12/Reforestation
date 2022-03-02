@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
