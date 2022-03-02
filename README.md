@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
