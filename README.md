@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## How come a man driving a train got struck by lightning? He was a good conductor.
