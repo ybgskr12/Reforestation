@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
