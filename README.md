@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## What do you call an alligator in a vest? An in-vest-igator!
