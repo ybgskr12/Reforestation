@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
