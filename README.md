@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
