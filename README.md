@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
