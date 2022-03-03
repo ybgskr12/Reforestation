@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## You can't trust a ladder. It will always let you down
