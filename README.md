@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
