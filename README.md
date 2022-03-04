@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
