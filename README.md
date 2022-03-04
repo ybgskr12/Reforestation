@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
