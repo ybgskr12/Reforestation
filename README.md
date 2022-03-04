@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What's black and white and read all over? The newspaper.
