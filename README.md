@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Don't tell secrets in corn fields. Too many ears around.
