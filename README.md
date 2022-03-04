@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
