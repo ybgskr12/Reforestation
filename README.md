@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Where did you learn to make ice cream? Sunday school.
