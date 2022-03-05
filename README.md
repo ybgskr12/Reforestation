@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
