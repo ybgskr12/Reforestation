@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
