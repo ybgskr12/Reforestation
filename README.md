@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
