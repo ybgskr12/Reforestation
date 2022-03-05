@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
