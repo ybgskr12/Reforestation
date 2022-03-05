@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
