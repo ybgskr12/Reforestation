@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
