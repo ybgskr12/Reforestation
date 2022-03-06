@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
