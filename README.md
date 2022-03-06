@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
