@@ -1,1 +1,2 @@
-## What do you call a pig that knows karate? A pork chop!
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
