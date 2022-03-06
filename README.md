@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why can't a bicycle stand on its own? It's two-tired.
