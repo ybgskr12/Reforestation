@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
