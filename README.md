@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What animal is always at a game of cricket? A bat.
