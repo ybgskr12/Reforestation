@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## How does the moon cut his hair? Eclipse it.
