@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
