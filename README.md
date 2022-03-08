@@ -1,1 +1,3 @@
-## What do you call a fake noodle? An impasta.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
