@@ -1,1 +1,2 @@
-## What does a female snake use for support? A co-Bra!
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
