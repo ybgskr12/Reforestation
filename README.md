@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
