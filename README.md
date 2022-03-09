@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## What do bees do after they are married? They go on a honeymoon.
