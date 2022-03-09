@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What do you call a cow with no legs? Ground beef.
