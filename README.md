@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## I wouldn't buy anything with velcro. It's a total rip-off.
