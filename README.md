@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Don't tell secrets in corn fields. Too many ears around.
