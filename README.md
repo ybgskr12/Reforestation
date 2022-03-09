@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Why do fish live in salt water? Because pepper makes them sneeze!
