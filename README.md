@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why did the house go to the doctor? It was having window panes.
