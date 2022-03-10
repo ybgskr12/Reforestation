@@ -1,1 +1,2 @@
-## Why do bears have hairy coats? Fur protection.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
