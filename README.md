@@ -1,1 +1,3 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
