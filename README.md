@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Atheism is a non-prophet organisation.
