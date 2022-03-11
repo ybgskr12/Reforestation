@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## When does a joke become a dad joke? When it becomes apparent.
