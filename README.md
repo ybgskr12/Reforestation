@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## This morning I was wondering where the sun was, but then it dawned on me.
