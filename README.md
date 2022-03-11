@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## Leather is great for sneaking around because it's made of hide.
