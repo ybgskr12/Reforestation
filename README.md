@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
