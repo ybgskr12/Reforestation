@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
