@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What did the piece of bread say to the knife? Butter me up.
