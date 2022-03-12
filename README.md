@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Thanks for explaining the word "many" to me. It means a lot.
