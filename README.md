@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
