@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
