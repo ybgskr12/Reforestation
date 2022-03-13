@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
