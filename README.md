@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
