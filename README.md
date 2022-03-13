@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
