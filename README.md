@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
