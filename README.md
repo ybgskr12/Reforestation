@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
