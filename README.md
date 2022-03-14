@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## What do you call a group of killer whales playing instruments? An Orca-stra.
