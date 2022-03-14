@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
