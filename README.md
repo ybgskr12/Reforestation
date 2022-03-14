@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What do you get when you cross a bee and a sheep? A bah-humbug.
