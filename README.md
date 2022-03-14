@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## what do you call a dog that can do magic tricks? a labracadabrador
