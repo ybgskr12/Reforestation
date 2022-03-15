@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
