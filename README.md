@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## How many apples grow on a tree? All of them!
