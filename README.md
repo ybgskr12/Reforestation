@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## What’s E.T. short for? He’s only got little legs.
