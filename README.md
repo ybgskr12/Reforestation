@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
