@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## I thought about going on an all-almond diet. But that's just nuts.
