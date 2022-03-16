@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## You can't trust a ladder. It will always let you down
