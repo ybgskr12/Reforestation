@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I don't trust stairs. They're always up to something.
