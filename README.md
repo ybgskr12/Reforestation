@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## How do you make a hankie dance? Put a little boogie in it.
