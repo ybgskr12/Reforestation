@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
