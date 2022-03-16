@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
