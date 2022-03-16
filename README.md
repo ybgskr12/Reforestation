@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## I just got fired from a florist, apparently I took too many leaves.
