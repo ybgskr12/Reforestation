@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
