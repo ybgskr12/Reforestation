@@ -1,1 +1,2 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
