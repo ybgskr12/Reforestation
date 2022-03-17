@@ -1,2 +1,1 @@
-## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
-## I have no words to describe how angry I am.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
