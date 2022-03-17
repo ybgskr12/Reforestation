@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## How come a man driving a train got struck by lightning? He was a good conductor.
