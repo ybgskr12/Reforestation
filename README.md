@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## A farmer had 297 cows, when he rounded them up, he found he had 300
