@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What did the late tomato say to the early tomato? I’ll ketch up
