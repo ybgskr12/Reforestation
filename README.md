@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## What do you get when you cross a snowman with a vampire? Frostbite.
