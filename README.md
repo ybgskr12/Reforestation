@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
