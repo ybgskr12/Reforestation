@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
