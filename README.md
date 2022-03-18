@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Writing with a broken pencil is pointless.
