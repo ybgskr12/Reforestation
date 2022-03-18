@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## I used to be a banker, but I lost interest.
