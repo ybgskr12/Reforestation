@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## What is a vampire's favorite fruit? A blood orange.
