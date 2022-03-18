@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What do prisoners use to call each other? Cell phones.
