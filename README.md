@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
