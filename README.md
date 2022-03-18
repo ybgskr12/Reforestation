@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## What do you call an alligator in a vest? An in-vest-igator!
