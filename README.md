@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## There's not really any training for garbagemen. They just pick things up as they go.
