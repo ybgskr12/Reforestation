@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
