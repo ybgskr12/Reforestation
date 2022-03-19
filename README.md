@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
