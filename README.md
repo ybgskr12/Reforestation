@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
