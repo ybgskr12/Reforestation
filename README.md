@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## What does a clock do when it's hungry? It goes back four seconds!
