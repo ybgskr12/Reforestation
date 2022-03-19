@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## This is my step ladder. I never knew my real ladder.
