@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I got fired from a florist, apparently I took too many leaves.
