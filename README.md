@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## What do you call a monkey in a mine field? A babooooom!
