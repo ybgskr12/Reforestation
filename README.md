@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Why are skeletons so calm? Because nothing gets under their skin.
