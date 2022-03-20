@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
