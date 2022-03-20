@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Why is the ocean always blue? Because the shore never waves back.
