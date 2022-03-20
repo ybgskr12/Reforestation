@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## How do you find Will Smith in the snow?  Look for fresh prints.
