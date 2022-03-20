@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Why do choirs keep buckets handy? So they can carry their tune
