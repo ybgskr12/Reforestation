@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What did the shy pebble wish for? That she was a little boulder.
