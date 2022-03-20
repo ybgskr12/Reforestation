@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
