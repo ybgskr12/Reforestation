@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
