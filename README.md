@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
