@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
