@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
