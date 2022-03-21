@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
