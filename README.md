@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
