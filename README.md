@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Two silk worms had a race. They ended up in a tie.
