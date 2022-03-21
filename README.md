@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
