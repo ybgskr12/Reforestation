@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
