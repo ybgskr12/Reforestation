@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why was the robot angry? Because someone kept pressing his buttons!
