@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
