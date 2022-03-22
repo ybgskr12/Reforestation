@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
