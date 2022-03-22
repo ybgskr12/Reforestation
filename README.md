@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
