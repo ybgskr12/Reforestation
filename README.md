@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
