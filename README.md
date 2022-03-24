@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
