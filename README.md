@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## What do you call a troublesome Canadian high schooler? A poutine.
