@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
