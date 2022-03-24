@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
