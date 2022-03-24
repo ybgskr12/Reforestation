@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
