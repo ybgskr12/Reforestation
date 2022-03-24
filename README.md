@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## What do birds give out on Halloween? Tweets.
