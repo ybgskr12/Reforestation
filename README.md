@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
