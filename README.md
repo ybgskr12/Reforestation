@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
