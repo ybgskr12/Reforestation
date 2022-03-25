@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Where do sheep go to get their hair cut? The baa-baa shop.
