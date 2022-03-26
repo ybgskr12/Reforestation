@@ -1,1 +1,2 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
