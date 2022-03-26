@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Writing with a broken pencil is pointless.
