@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
