@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
