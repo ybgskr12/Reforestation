@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
