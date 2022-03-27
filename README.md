@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
