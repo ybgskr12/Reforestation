@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
