@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
