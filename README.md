@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
