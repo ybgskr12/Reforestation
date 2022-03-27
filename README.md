@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
