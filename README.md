@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
