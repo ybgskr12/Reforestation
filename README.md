@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
