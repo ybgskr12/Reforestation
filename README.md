@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What does a clock do when it's hungry? It goes back four seconds!
