@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
