@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## The rotation of earth really makes my day.
