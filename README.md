@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
