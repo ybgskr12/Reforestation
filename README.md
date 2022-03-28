@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
