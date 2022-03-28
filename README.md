@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Have you heard about corduroy pillows?  They're making headlines!
