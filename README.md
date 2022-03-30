@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Mountains aren't just funny, they are hill areas
