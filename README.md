@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## I knew a guy who collected candy canes, they were all in mint condition
