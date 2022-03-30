@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Geology rocks, but Geography is where it's at!
