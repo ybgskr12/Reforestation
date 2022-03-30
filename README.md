@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## I thought about going on an all-almond diet. But that's just nuts.
