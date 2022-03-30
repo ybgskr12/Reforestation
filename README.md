@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
