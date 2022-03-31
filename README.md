@@ -1,1 +1,3 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
