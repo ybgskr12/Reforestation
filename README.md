@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Coffee has a tough time at my house, every morning it gets mugged.
