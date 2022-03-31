@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
