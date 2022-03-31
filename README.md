@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
