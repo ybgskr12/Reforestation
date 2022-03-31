@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
