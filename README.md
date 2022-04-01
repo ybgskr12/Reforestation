@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
