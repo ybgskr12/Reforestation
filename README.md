@@ -1,1 +1,2 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## What's the difference between a seal and a sea lion?
+## An ion! 
