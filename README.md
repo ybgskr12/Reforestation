@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## This morning I was wondering where the sun was, but then it dawned on me.
