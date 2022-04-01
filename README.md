@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
