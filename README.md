@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
