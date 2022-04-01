@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
