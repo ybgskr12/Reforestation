@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
