@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
