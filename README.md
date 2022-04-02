@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Our wedding was so beautiful, even the cake was in tiers.
