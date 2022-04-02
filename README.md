@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
