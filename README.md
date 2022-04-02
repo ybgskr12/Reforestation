@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
