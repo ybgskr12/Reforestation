@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
