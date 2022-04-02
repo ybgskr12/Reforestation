@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Toasters were the first form of pop-up notifications.
