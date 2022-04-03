@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## A magician was driving down the street and then he turned into a driveway.
