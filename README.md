@@ -1,1 +1,2 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
