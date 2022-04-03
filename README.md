@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## I tried to write a chemistry joke, but could never get a reaction.
