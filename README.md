@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Did you know that ghosts call their true love their ghoul-friend?
