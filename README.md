@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## How do you find Will Smith in the snow?  Look for fresh prints.
