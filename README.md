@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## What do you call an alligator in a vest? An in-vest-igator!
