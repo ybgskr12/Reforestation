@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
