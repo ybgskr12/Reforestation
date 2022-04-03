@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Two muffins were sitting in an oven, and the first looks over to the second, and says, “man, it’s really hot in here”. The second looks over at the first with a surprised look, and answers, “WHOA, a talking muffin!”
