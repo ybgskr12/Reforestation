@@ -1,1 +1,2 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
