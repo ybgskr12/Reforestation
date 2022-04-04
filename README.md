@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
