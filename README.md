@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
