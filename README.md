@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## It takes guts to be an organ donor.
