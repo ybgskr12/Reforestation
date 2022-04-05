@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
