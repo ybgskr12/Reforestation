@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
