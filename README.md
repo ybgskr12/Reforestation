@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Two dyslexics walk into a bra.
