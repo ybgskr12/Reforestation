@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
