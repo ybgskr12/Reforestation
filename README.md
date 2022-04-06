@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Do you know where you can get chicken broth in bulk? The stock market.
