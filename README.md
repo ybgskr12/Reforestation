@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## Why did the melons plan a big wedding? Because they cantaloupe!
