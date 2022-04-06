@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
