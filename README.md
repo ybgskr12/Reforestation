@@ -1,1 +1,2 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
