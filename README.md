@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why are fish so smart? Because they live in schools!
