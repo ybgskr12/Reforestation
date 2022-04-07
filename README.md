@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
