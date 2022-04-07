@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Conjunctivitis.com – now that’s a site for sore eyes.
