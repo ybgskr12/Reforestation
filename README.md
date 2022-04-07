@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
