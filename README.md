@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
