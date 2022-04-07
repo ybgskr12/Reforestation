@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
