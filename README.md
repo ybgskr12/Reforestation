@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
