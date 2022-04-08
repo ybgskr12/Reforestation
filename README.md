@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## To the guy who invented zero... thanks for nothing.
