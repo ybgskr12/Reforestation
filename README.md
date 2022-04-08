@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What is a vampire's favorite fruit? A blood orange.
