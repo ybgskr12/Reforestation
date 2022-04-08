@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Mountains aren't just funny, they are hill areas
