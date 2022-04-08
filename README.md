@@ -1,1 +1,3 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
