@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
