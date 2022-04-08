@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
