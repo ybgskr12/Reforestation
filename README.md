@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why are ghosts bad liars? Because you can see right through them!
