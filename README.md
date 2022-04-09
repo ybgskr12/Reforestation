@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
