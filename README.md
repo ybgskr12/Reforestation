@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Where do rabbits go after they get married? On a bunny-moon.
