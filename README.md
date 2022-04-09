@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Why was the big cat disqualified from the race? Because it was a cheetah.
