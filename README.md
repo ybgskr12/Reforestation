@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
