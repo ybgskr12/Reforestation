@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## The best time on a clock is 6:30--hands down.
