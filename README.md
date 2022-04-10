@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
