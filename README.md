@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
