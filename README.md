@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
