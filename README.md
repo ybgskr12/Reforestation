@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Remember, the best angle to approach a problem from is the "try" angle.
