@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
