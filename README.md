@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
