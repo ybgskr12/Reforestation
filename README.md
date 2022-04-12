@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
