@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## "I'll call you later." Don't call me later, call me Dad.
