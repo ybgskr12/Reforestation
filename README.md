@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Why did the melons plan a big wedding? Because they cantaloupe!
