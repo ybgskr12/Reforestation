@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
