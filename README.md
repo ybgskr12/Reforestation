@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
